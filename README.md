@@ -1,3 +1,3 @@
-sou escritos
-cantor
-e poeta
+oi eu sou responsavel
+trabalhadosr 
+
